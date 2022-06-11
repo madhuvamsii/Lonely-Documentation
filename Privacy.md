@@ -1,3 +1,1 @@
 ## Privacy Policy
-
-Hello
